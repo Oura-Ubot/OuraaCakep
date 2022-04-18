@@ -1,5 +1,19 @@
 # ʜᴀʟʟᴏ ᴀᴅɪᴄᴋ², 🐣  ɪ'ᴀᴍ ᴏᴜʀᴀᴀ 
 
+# ᴧʙᴏᴜᴛ ᴏᴜʀᴀᴀ 🐣 
+- **Nama**  : `OuraaXinn`
+- **Status**: `Pengacara`
+- **Umur**  : `20 belas`
+- **Asal**  : `Purwakarta/Mars`
+- **Zodiak**: `Kontol`
+
+### Skills
+- Tidur (100%)
+- Makan (20%)
+- Sange (100%)
+- Nonton Bokep (100%)
+- Belajar ngoding (-100%)
+
 # 𝗛𝗨𝗕𝗨𝗡𝗚𝗜 𝗢𝗨𝗥𝗔 𝗗𝗜 𝗧𝗘𝗟𝗘𝗚𝗥𝗔𝗠:
 
 [<img src="https://media0.giphy.com/media/ya4eevXU490Iw/giphy.gif">](https://t.me/Owaitingforyou)
